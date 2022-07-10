@@ -1,6 +1,6 @@
 # WikiBeerUIKIT
 
-Hi there, I'm [JoaquinCollazoRuiz][website]🙋🏻‍♂️
+Hi there, I'm Joaquín 🙋🏻‍♂️
 
 I'm a enthusiastic Developer, who loves his work!!
 
